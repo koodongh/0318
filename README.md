@@ -14,3 +14,5 @@
 [ 8 killed in shootings at 3 metro Atlanta spas. Police have 1 suspect in custody 8 killed in shootings at 3 metro Atlanta spas. Police have 1 suspect in custody](https://edition.cnn.com/2021/03/16/us/metro-atlanta-shootings/index.html)
 
 > 똑같은 내용을 다루는 기사였으나, 두 기사의 온도는 완전히 다릅니다. 아시아계 여성이라는 단어만을 사용하여 차별에 대한 내용은 없으며, 범죄 역시 아시아 혐오라는 표현은 존재하지 않습니다. 하지만 사건 발생 지역을 보면, 계획적으로 아시아여성에게만 총구를 겨눴다는 것을 약 30마일 거리를 이동해서 다시 범죄를 저지른 것으로 확인할 수 있습니다. 반대로 너무 많은 반감을 가지고 기사를 읽어서는 안된다고 생각합니다. 정말 성 중독자의 무차별 총격이며, 인종차별에 대해 문제가 없었을 수도 있습니다. 정부의 역할은 이러한 혼란 속에서 인종 우월주의, 차별주의에 대해 경각심을 가지고 대처해야하는 것은 추후 올바른 사고관을 갖추기 위한 예방책이라는 것은 변함없습니다.
+
+**저의 생각 중 잘못된 부분은 코멘트 부탁드립니다!^^**
